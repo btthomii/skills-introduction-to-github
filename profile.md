@@ -1,1 +1,1 @@
-Welcome to my Hithub profile!
+Welcome to my Github profile!
